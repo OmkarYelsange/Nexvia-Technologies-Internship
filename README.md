@@ -1,1 +1,0 @@
-﻿# Nexvia Technologies Internship
